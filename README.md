@@ -1,1 +1,1 @@
-# achivmenthunting
+# purly for achivments
